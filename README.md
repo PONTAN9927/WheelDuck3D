@@ -6,5 +6,5 @@
 *ただし本モデル、改造モデルやデータの再配布及び販売は禁止とします。
 
 何か疑問点や問題があれば私まで連絡ください。
-TwitterID @PON_1up
-メアド　　　is0469fv@ed.ritsumei.ac.jp
+TwitterID :@PON_1up
+メアド　　　:is0469fv@ed.ritsumei.ac.jp
